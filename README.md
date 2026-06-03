@@ -27,7 +27,7 @@ I'm a passionate **Cybersecurity student** on a journey to build myself step by 
 ## 📫 Let's Connect!
 
 - Prefer collaboration or connection via **email**:  
-  **ouahmanemadani189@gmail.com**
+  **madani.ouahmane.official@gmail.com**
 
 ---
 
